@@ -1,1 +1,1 @@
-![image](https://github.com/saadeghi/saadeghi/blob/master/dino.gif)
+![image](https://github.com/sudimuk2017/qwaszx/blob/main/dino.gif)
