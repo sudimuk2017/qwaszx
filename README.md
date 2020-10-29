@@ -1,3 +1,3 @@
 ![image](https://github.com/sudimuk2017/qwaszx/blob/main/dino.gif)
-jdnjl  df   j   jfl    sfj  skld  jl  d  s   fj   sj    dl  jflf
+jdnj  df   j   jfl    sfj  skld  jl  d  s   fj   sj    dl  jflf
 
