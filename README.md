@@ -1,3 +1,3 @@
 ![image](https://github.com/sudimuk2017/qwaszx/blob/main/dino.gif)
-jd df j fj d jlds fjsjdlj
+jd df j fjd jlds fjsjdlj
 
