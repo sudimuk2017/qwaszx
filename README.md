@@ -1,6 +1,6 @@
 ![image](https://github.com/sudimuk2017/qwaszx/blob/main/dino.gif)
 
-ierhforuroh5o4g54
+ierhfruroh5o4g54
 
 
 
